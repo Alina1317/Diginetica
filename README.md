@@ -1,1 +1,1 @@
-# Link to hosting - alina1317.github.io/diginetica/
+# Link to hosting - https://alina1317.github.io/Diginetica/
